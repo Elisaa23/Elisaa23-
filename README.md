@@ -1,6 +1,5 @@
 # Elisaa23- 
-![https://pt.picmix.com/stamp/Snorlax-8-Bit-1983718
-](link)
+![](https://img1.picmix.com/output/stamp/normal/8/1/7/3/1983718_ac2bd.gif)
 
 
 -Boas vindas ao meu perfil <3
