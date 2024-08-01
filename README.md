@@ -1,5 +1,5 @@
 # Elisaa23- 
-![](https://img1.picmix.com/output/stamp/normal/8/1/7/3/1983718_ac2bd.gif)
+![](https://media.tenor.com/pXEDrZV2s4QAAAAj/star-spinning.gif)
 
 
 -Boas vindas ao meu perfil <3
